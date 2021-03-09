@@ -9,3 +9,8 @@ Dapper Labs is one of the few companies and organizations creating a new digital
 Why This May be Interesting
 
 Dapper Labs is paving the way for FIAT currency to be converted and held in crypto and part of the struggle to solidify and prove the safety of crypto to the world. They are directly doing this by helping in the creation of a secondary marketplace of exchange of digital securities through purchasing of digital assets. 
+
+
+Sources: https://en.wikipedia.org/wiki/CryptoKitties
+https://www.linkedin.com/company/dapper-labs/?originalSubdomain=ca\
+https://golden.com/wiki/Dapper_Labs-NMGXAKG
